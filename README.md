@@ -1,2 +1,2 @@
 # test-prosjekt-1
-Mine første steg med GitHub
+SIGMA MED LIGMA SOM HAR SPIST MYE
